@@ -1,4 +1,4 @@
-### Hi there 👋, Hi, I'm Nasrin Akter
+### Hi, I'm Nasrin Akter
 #### Web Developer
 Hi! I'm A. Nasrin Akter. I am passionate about learning new technologies and continuously improving my skills. Delivering quality work and ensuring client satisfaction are always my top priorities.
 
